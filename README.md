@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Alora
+- 👀 I’m interested in creating content
+- 📫 How to reach me add me on discord
+- 😄 Pronouns: she/her
